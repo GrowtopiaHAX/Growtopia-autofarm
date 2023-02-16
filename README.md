@@ -1,2 +1,2 @@
 # Growtopia-autofarm
-Joina Dsc.gg/GrowtopiaHacks
+Join Dsc.gg/GrowtopiaHacks
